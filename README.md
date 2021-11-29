@@ -9,7 +9,7 @@ Passionate to learn new things.
 
 
 
-- ✌️ Interested in AI, ML, DL & start-up
+- ✌️ Interested in AI, ML, DL&start-up
 
 - 🌀 full of ideas to more success and achieving higher ranks
 
