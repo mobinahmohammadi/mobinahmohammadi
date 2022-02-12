@@ -10,7 +10,7 @@ Powerful,motivated seeker .
 
 - ✌️  Interested in AI, ML, DL&start-up...
 
-- 🧠 I’m currently focusing on ML..
+- 🧠 I’m currently focusing on ML&ِDL
  
 - 🌀 full of ideas to more success and achieving higher ranks..
 
